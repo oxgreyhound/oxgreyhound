@@ -7,5 +7,5 @@ Here are some ideas to get you started:
 
 - 🔎 Cyber Security analyst, Web Security Analyst ***mainly***.
 - 🌱 Currently learning/working on my **JavaScript** and **Python3** writing skills.
-- ⚡ Want to collaborate with me ex on HackerOne,BugCrowd or any other bug bounty website? hit me up on Instagram **oxgreyhound**.
+- ⚡ Want to collaborate with me on something or anything? hit me up on Instagram **oxgreyhound**.
 - 📫 Best way to reach out to me is via Instagram as mentioned above **oxgreyhound**.
