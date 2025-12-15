@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 - ⚡ Want to collaborate with me on something or anything? hit me up on Instagram **oxgreyhound**.
 - 📫 Best way to reach out to me is via Instagram as mentioned above **oxgreyhound**.
   
-[Youtube](https://www.youtube.com/@0xgreyhound/featured)
+[**Web Security** related videos on **YouTube** by me.](https://www.youtube.com/@0xgreyhound/featured)
